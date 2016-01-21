@@ -6,3 +6,4 @@ Nama Kelompok :
 =================================
 
 1. Wasti A Dalfon Rissy (Ketua)
+2. Yoel Nikanor Louris Koroh
